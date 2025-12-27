@@ -9,12 +9,14 @@ Mid-drive to go snowboarding, I get a message from my manager asking to call. Th
 
 <br>
 <p align="center">
-<img style="max-width: 1024px; margin: 0 0 0 -162px;" src="/assets/doha_1.jpeg">
-<img style="max-width: 1024px; margin: 0 0 0 -162px;" src="/assets/doha_2.jpeg">
+<img style="max-width: 1024px; margin: 0 0 0 -162px;" src="/assets/2025-04-21-india/doha_1.jpeg">
+<img style="max-width: 1024px; margin: 0 0 0 -162px;" src="/assets/2025-04-21-india/doha_2.jpeg">
 
 </p>
 *Transfer at Hamad International Airport, Doha, Qatar*
 <br>
+
+*Business class is niceeeeee*
 
 
 
